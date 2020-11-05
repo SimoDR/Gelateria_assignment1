@@ -1,1 +1,1 @@
-1187510 Banana split Coppa Nafta
+1187510 Gelati Banana split Coppa Nafta
