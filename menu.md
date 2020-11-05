@@ -1,2 +1,1 @@
-1187510
-Banana split
+1187510 Banana split Coppa Nafta
